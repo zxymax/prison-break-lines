@@ -4,16 +4,16 @@
 
 ##### 第一集
 
-- That's it.
+> That's it.
 - 好了
 
-- Can I just, you know, look at it for a minute?
+> Can I just, you know, look at it for a minute?
 - 能不能让我再欣赏一会儿
 
-- You're an artist, Sid.
+> You're an artist, Sid.
 - 你真是个艺术家 希德
 
-- You're telling me you're gonna walk outta here and I'm never gonna see it again?
+> You're telling me you're gonna walk outta here and I'm never gonna see it again?
 - 你是说 你就这么走了 然后我再也见不到这件艺术品了
 
 - There's a good chance of that, yes.
