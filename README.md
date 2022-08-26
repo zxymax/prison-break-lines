@@ -243,3 +243,210 @@
 
 > Sentence to be carried out immediately.
 - 审判结果即刻生效
+
+> All right, people, step inside the door and check yourself for bugs.
+- 都听好了 一个一个的进来接受检查
+
+> When you hear the knock, step out. Keep the line moving.
+- 听到敲门声就进来 随着队伍向前移动
+
+> We ain't got all day to get this done.
+- 我们不可能把一天的时间都浪费在你们身上
+
+> No more talking in line.
+- 排队的时候不准出声
+
+> Move it. You got less than five minutes to take a shower.
+- 动作快点 你们还有不到5分钟的时间去洗澡
+
+> Keep that line moving. Keep it moving. Move it. Right now.
+- 都动起来 快点 快往前走
+
+> Let's go. Move, move.
+- 快点 抓紧时间
+
+> Next down in the banks, dress. Let's go
+- 下一位躺在板凳上 穿上衣服 快点走
+
+> Name and bank number
+- 姓名和号码
+
+> Scofield Michael. 94941
+- 斯科菲尔德·迈克尔
+
+> Are you a religious man, Scofield?
+- 你是教徒吗 斯科菲尔德
+
+> Never thought about it
+- 从来就没想过
+
+> Good,cos the Ten Commandments don't mean a box of piss in here.
+- 和那后 十戒在这里一文不值
+
+> We got two commandments and two only.
+- 这里只有两戒
+
+> The first commandments is, you got nothin' comin'.
+- 第一条戒律是你在这里毫无希望可言 
+
+> What's the second commandment?
+- 第二戒呢？
+
+> See commandment number one.
+- 参考第一条戒律
+
+> Gotcha.
+- 明白了
+
+> You talking out the side of your neck?
+- 你说话绕弯子吗
+
+> Come again?
+- 什么
+
+> I said, are you bein' a smartass?
+- 你想自作聪明吗
+
+> Just trying to fly low, avoid the radar, boss.
+- 只想保持低调 不想引起注意 长官
+
+> Do my time and get out.
+- 等到刑满释放
+
+> There isn't any flyin' under my radar.
+- 在我的地方谁也别想耍花样
+
+> Good to know.
+- 我了解了
+
+> Hey, can a brother get some air conditioning up here, coach?
+- 嗨 长官 能不能找位兄弟上来装台空调
+
+> <u>It's hotter than a crack ho's mouth, man.</u>
+- 这里比吸毒妓女的热吻还要热
+
+> To hell with the AC, man. Give me the crack ho.
+- 让空调去见鬼吧 我要吸毒的妓女
+
+> Come on
+- 快点
+
+> You, fish. What you lookin' at?
+- 你 小嫩鸡 看什么看 
+ 
+> You look kinda pretty to be up in here, man.
+- 没事跑这里来干嘛
+
+> Fish!
+- 小嫩鸡
+
+> I suggest you take a seat, fish.
+- 我建议你还是坐会吧 小嫩鸡
+
+> Ain't nothing to do up in here but serve time.
+- 既然来了就好好服刑吧
+
+> Ain't nobody gonna serve it for you!
+- 没人会替你服刑的
+
+> Welcome to Prisneyland. fish
+- 欢迎来到监狱乐园 小嫩鸡
+
+> You wanna talk about it?
+- 你想谈一下吗
+
+> It's not worth talking about.
+- 没有什么可谈的
+
+> If it's keeping you up, it is.
+- 要是让你一直睡不着觉的话 当然有的
+
+> No, it's just...
+- 哦 只不过
+
+> It's nothing, you know.
+- 其实也没什么
+
+> Michael's case.
+- 是迈克尔的案子
+
+> You did the best you could.
+- 你已经尽力了
+
+> But he didn't.
+- 但他却没有
+
+> He just sort of rolled over, he didn't put up a fight.
+- 他只是想草草了事 没有任何争辩
+
+> It's not like him. I...
+- 真的太不像他了
+
+> I'm sorry. I shouldn't be talking about him.
+- 对不起 我不应该提他的
+
+> Hey, if it's on your mind, it's on your mind, right?
+- 嗨 这如果是你想的 就是你想的 不是吗
+
+> Good night
+- 晚安
+
+> All wings, guard coming out.
+- 所有狱警待命
+
+> Trey Street Deuces got the hoops.
+- 街头流氓 占据着篮球场
+
+> Nortenos got the bleachers.
+- 北风 占据着看台
+
+> Woods got the weight pile.
+- 森林小子 占据着举重器械
+
+> The C.O.s got the rest.
+- 其他的地方由狱警掌管
+
+> I'm telling you, the gurads are the dirtiest gang in this whole place.
+- 我告诉你 狱警都是世界上最肮脏的流氓
+
+> They only difference between us and them is the badge.
+- 他们与我们唯一的不同就是他们有徽章
+
+> Who's the pet lover?
+- 抱着宠物的那个人是谁
+
+> He'll deny it, but he's DB Cooper.
+- 他一直不肯承认 他是D.B.库珀
+
+> Parachuted out of a plane 30 years ago with a million and a half in cash.
+- 三十年前带着一百五十万现金从一架飞机空降
+
+> Doesn't look like the type.
+- 看起来不像啊
+
+> Who does?
+- 谁看起来像呢
+
+> Hey! What up. Wholesale? You OK?
+- 嗨 怎么样 百货商店 你还好吗
+
+> Gonna be greater later.
+- 非常不错
+
+> Yeah.
+- 是啊
+
+> What you doin' with this fish, man?
+- 你怎么和小嫩鸡混在一起了 伙计
+
+> He's my new cellie.
+- 他是我的新室友
+
+> Wholesale's got it wired up out of commissary
+- 他和贩卖部的人很熟
+
+> Anything you want, he can get it for you.
+- 任何你想要的 他都能给你弄到
+
+> You keep handin' out my jacket I swear I'm gonna bust your grape.
+- 你再把我的事抖出来我就给你好看
