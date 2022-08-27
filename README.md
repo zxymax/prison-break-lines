@@ -636,3 +636,229 @@
 
 > No H?
 - 没有h
+
+> LJ, hold up. Hold up?
+- LJ 等一下 等一下
+
+> I don't think I can go through with this.
+- 我想我办不到
+
+> Everything's gonna be fine. Trust me.
+- 不会有事的 相信我
+
+> We understand each other, then? -yeah
+- 我们彼此了解 对吧 -是的
+
+> Friday. Not Saturday, not Sunday. Friday.
+- 是星期五 不是星期六 也不是星期日 是星期五
+
+> Totally understood.
+- 完全明白
+
+> I don't want 100s, I don't want fives, I don't want ones.
+- 面额是百元 五元 还有一元的都不要
+
+> I know, I know.
+- 明白 明白
+
+> Tens and 20s only.
+- 只要十元和二十元的
+
+> It's on.
+- 开始行动
+
+> Police!
+- 警察
+
+> Abruzzi. I need you to hire me at P.I
+- 阿布鲁奇 我想让你顾我去监狱工厂
+
+> Beat it.
+- 爬开
+
+> Maybe you oughta hear what I gotta say.
+- 也许你该听听我要说的
+
+> You got nothing I need.
+- 你没有我要的东西
+
+> Wouldn't be too sure of that.
+- 我可不这么认为
+
+> My mistake.
+- 是我错了
+
+> Just what I need. A duck.
+- 我想要的就是一只鸭子
+
+> a P.I. Abruzzi.
+- 监狱工厂 阿布鲁奇
+
+> You might find I can be of more assistance than you think.
+- 说不定我能帮上你大忙呢
+
+> Mull it over.
+- 再考虑一下
+
+> Come find me when you're ready to talk.
+- 想好了就来找我谈
+
+> All right, guys. Pick it up.
+- 伙计们 都利索点
+
+> I wanna get home tonight.
+- 我今晚还想回家呢
+
+> Maggio?
+- 马奇奥
+
+> Yeah. So?
+- 说吧 什么事
+
+> That's the son of a bitch at fingered Abruzzi
+- 就是这个狗娘养的家伙指证阿布鲁奇的
+
+> That's Fibonacci?
+- 菲波纳奇
+
+> I thought that punk was gone forever.
+- 还以为这个混蛋湖永远消失呢
+
+> Evidently somebody found him.
+- 很明显 有人找到了他
+
+> somebody messin' with us?
+- 看来有人想和我们玩游戏
+
+> This you're not gonna believe.
+- 这个你肯定不信
+
+> What is it?
+- 这是什么
+
+> Tattoo looks fresh.
+- 纹身看上去像新的
+
+> Hold that.
+- 按住
+
+> I guess being a diabetic, you don't mind needles.
+- 看来糖尿病患者还真不介意打针
+
+> I'm Michael, by the way.
+- 我叫迈克尔
+
+> Scofield I read your report.
+- 斯科菲尔德 我看了你的资料
+
+> And you are?
+- 那么你是
+
+> Dr. Tancredi will do.
+- 叫我 唐克雷蒂 医生就行
+
+> "Tancredi" like the governor?
+- 和州长同姓唐克雷蒂
+
+> You're not related, are you?
+- 你们不会是亲戚吧
+
+> Wouldn't think you'd find the daughter of Frontier Justice Frank working in a prison.
+- 真想不到州长的女儿会在监狱里工作
+
+> As a doctor, no less.
+- 而且还是 医生
+
+> I believe in being part of the solution, not the problem. Hm.
+- 我喜欢解决问题 而不是制造问题
+
+> "Be the change you want to see in the world."
+- 通过改变自身来适应万变的世界
+
+> What?
+- 怎么了
+
+> Nothing. That was just my senior quote.
+- 没什么 只不过这是我的座右铭
+
+> That was you?
+- 原来是你说的
+
+> This whole time I was thinking it was Gandhi.
+- 我一直认为是甘地说的
+
+> You're very funny.
+- 你很有意思
+
+> Sit tight.
+- 做好了
+
+> Put direct pressure on that. I'll be back in a sec.
+- 手按住 我马上回来
+
+> So, how do we play this?
+- 那么我们怎么来治疗呢
+
+> You hook me up with a few weeks' supply?
+- 你给我开几个星期的药吧
+
+> Nice try.
+- 想的美
+
+> No hypos on the floor.
+- 这里不允许有瘾君子
+
+> I'm the farthest thing from a junkie. Trust me.
+- 我是不会吸毒的 相信我
+
+> I got news for you. Michael.
+- 我告诉你 迈克尔
+
+> "Trust me" means absolutely zero inside those walls.
+- 信任这东西 在监狱里一文不值
+
+> The only way you're getting that insulin is if I'm administering it.
+- 你接受胰岛素的途径就是必须经由我允许
+
+> Guess we'll be seeing a lot of each other, then, huh?
+- 以后我们还会见面的 是么
+
+> I guess so.
+- 我想是的
+
+> We're all clear on the Burrows execution
+- 布伦斯的死刑一切就绪了
+
+> Good
+- 很好
+
+> Except for one thing
+- 还有件事
+
+> Bishop McMorrow is not in the fold.
+- 马克莫拉主教不同意这么做
+
+> He's not a lot of influence with the governor.
+- 他和州长关系不错
+
+> They went to prep school together apparently.
+- 他们以前是校友
+
+> Look, the closer it gets.
+- 时间越近
+
+> the more I'm worried that the bottom
+- 我就越担心
+
+> is gonna fall out of this whole thing.
+- 总怕会出什么乱子
+
+> Well, maybe it's time you arranged a visit with the good bishop, then.
+- 去安排我和主教大人见一次面
+
+> Look, in one month
+- 记住，再有一个月
+
+> it'll all be over.
+- 一切斗湖结束
+
