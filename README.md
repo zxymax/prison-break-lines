@@ -634,5 +634,5 @@
 > How do you spell that? Is it P-A-S-H...?
 - 怎么拼的 p-a-s-h
 
-> 没有h
+> No H?
 - 没有h
