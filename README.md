@@ -450,3 +450,189 @@
 
 > You keep handin' out my jacket I swear I'm gonna bust your grape.
 - 你再把我的事抖出来我就给你好看
+
+> Man, you couldn't bust a grape in Napa with a set of cleats on.
+- 你有这本事么
+
+> What are you talkin' about? Man, you want to bump your gums.
+- 你再说些什么 朋友 你想找麻烦是么
+
+> Oh, no, no. Now you're talking, talking, talking...
+- 不不不 一直都是你在说
+
+> I'm looking for someone.
+- 我想找个人
+
+> Guy named Lincoln Burrows 
+- 他叫林肯·布伦斯
+
+> Linc the Sink?
+- 水缸 林克
+
+> That what they're calling him now?
+- 他们现在这么叫他么
+
+> Yeah.
+- 没错
+
+> As in, he'll come at you with everything but the kitchen, snowflake.
+- 他要是想找你麻烦 你可就死定了 小白脸
+
+> Where can I find him?
+- 在哪儿能找到他
+
+> Man killed the VP's brother, and in a month he's getting the chair.
+- 这人谋杀了副总统的哥哥 一个月后 他就要坐电椅了
+
+> Which means no one up this river is more dangerous than him.
+- 这里没人比他更危险了
+
+> What are they gonna do, kill him twice?
+- 谁能把他怎样 杀他两次么
+
+> There a way I can get to him?
+- 有没有办法让我接近他
+
+> Oh, no. The only time those boys get out is for chapel and P.I.
+- 不太可能 他们只有在做礼拜和P.I的时候才出来
+
+> P.I? What's that? -Prison industry.
+- P.I是什么 -监狱工厂
+
+> The guys that get along, get to work.
+- 他们都要去干活
+
+> you know, painting, scrapping, making mattersses, you name it.
+- 刷油漆 刮刮墙 还有做床垫
+
+> I wouldn't get excited if I were you, fish.
+- 小嫩鸡 如果我是你的话 才不会感到兴奋
+
+> You ain't sniffin' none of P.I
+- 你连监狱工厂的味都闻不着
+
+> Why's that?
+- 为什么
+
+> Cos John Abruzzi runs it.
+- 因为工厂由约翰·阿布鲁奇掌控
+
+> John Abruzzi, John Abruzzi
+- 约翰·阿布鲁奇 约翰·阿布鲁奇
+
+> John Abruzzi, John Abruzzi
+- 约翰·阿布鲁奇 约翰·阿布鲁奇
+
+> Why do you want to see Burrows so bad anyhow?
+- 你为什么这么想见布伦斯
+
+> Because he's my brother.
+- 因为他是我的哥哥
+
+> They denied the motion. -Then do it again.
+- 他们驳回了上诉 -那就再上诉
+
+> I can't. That's it.
+- 不行 就这样了
+
+> May 11th. That's the date, man.
+- 五月十一日就是那天
+
+> That's the date they, uh, you know... execute me.
+- 就是我被执行死刑的日子
+
+> I know.
+- 我知道
+
+> I didn't kill that man, Michael.
+- 迈克尔 那人不是我杀的
+
+> The evidence says you did.
+- 可他们有证据
+
+> I don't care what the evidence says. I didn't kill him.
+- 我才不管什么证据 反正我没杀人
+
+> Swear to me.
+- 向我发誓
+
+> I swear to you, Michael.
+- 我向你发誓 迈克尔
+
+> But how did they get it wrong, then?
+- 那么他们怎么会搞错呢
+
+> The courts, the appeals...
+- 法庭 上诉
+
+> Don't know. Don't know.
+- 不知道 我也不知道
+
+> I keep thinking, looking back on it, is I was set up.
+- 现在回想起来 我是被陷害的
+
+> And whoever it was that set me up
+- 不管是谁要陷害我
+
+> wants me in the ground as quickly as possible.
+- 都想把我尽快至于死地
+
+> What's another word for "love"?
+- 表达爱意 还有其他什么词儿呢
+
+> What's the context?
+- 什么情况下说的
+
+> Oh, you know.
+- 哦 就好像
+
+> The "I love you so much I ain't never knockin' over a liquor store again" context.
+- 我很爱你 再也不去酒馆胡闹之类的
+
+> Except, you know, classy.
+- 还有 不用太华丽
+
+> Mm.
+- 嗯
+
+> I'm proposing to my girl, if you gotta know.
+- 我就是想向我女朋友求婚
+
+> In a letter?
+- 在信里
+
+> You got a better way?
+- 你有更好的方法
+
+> Face to face works pretty good.
+- 当面说效果会更好
+
+> This place ain't exactly the romantic spot.
+- 这可不是什么浪漫之地
+
+> I'm gonna have her go get on the Staten Island Ferry.
+- 我要让她乘着史泰登岛渡轮
+
+> then once she can see the Empire State Building
+- 然后当她看到了帝国大厦
+
+> she opens the letter...
+- 这时她打开信
+
+> It's like almost being there
+- 我就差不多成功了
+
+> Except for the fact that I won't be there.
+- 但事实上 我根本做不到这一切
+
+> Try "passion".
+- 用爱恋试试
+
+> Ooh! Ooh! "Passion. Passion" That's dope. Passion
+- 哦 哦爱恋 爱恋这个词好 爱恋
+
+> How do you spell that? Is it P-A-S-H...?
+- 怎么拼的 p-a-s-h
+
+> 没有h
+- 没有h
