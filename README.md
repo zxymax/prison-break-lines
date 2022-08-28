@@ -1246,3 +1246,779 @@
 > Take care of yourself.
 - 照顾好自己
 
+> Someone wants him dead, Veronica.
+- 有人要他斯 维罗妮卡
+
+> Someone more is going on here.
+- 有太多的阴谋
+
+> This is desperation, Michael. You're grabbing at straws. You're in denial.
+- 这是在绝望 迈克尔 你是在否定事实 面对现实吧
+
+> Maybe. But I can't watch him die. I won't do that.
+- 或许是吧 我不能看着他死 我做不到
+
+> Gentlemen.
+- 先生们
+
+> What is it about the Burrows situation that I can help you with?
+- 布伦斯的事 我能帮上什么忙
+
+> It's our understanding that you have great influence with the governor.
+- 我们认为你对州长有着很大的影响力
+
+> I wouldn't say it's great, or influence.
+- 我不会说是非常大或是什么 影响力
+
+> We're friends.
+- 我们是朋友
+
+> It's also our understanding that you oppose the death penalty.
+- 我们知道您反对死刑
+
+> I'm a man of God. How could I not?
+- 我是上帝的子民 当然会这么认为了
+
+> In this case, we're hoping you'll suspend that position
+- 在这个案子里 我们希望您能改变一下立场
+
+> at least temporarily.
+- 至少是暂时的
+
+> If the inmate appeals to me for intervention, how can I turn my back on him?
+- 如果囚犯需要我的干涉 我怎么能坐视不管呢
+
+> You have a habit of answering a question with a question.
+- 我很欣赏 您用问题来回答问题
+
+> And you have a way of asking questions that beg more questions.
+- 你的方式好像是用问题来问更多问题
+
+> Are you saying you won't do it?
+- 这么说来您是不同意了
+
+> I'm not a man to equivocate.
+- 我的话已经够明确的了
+
+> You're what.
+- 您
+
+> 62 years old now, Your Excellency?
+- 现在已经62岁了
+
+> That's right.
+- 没错
+
+> I would assume, then, that you should be well-versed in how our goverment's tax system works.
+- 那么我想 您应该清楚政府的税收政策吧
+
+> Taking personal capital gains under the church's tax shelter, well, that would be fraud, wouldn't it, Your Excellency
+- 在教会掩护下中饱私囊 难道阁下不认为这是一种欺骗吗
+
+> I will not be cowed into forsaking my beliefs.
+- 我是不会因为恐惧而放弃自己的信你的
+
+> Not by you, or anyone else.
+- 你吓不倒我 谁也做不到
+
+> Admirable.
+- 佩服
+
+> Good day, Excellency.
+- 再见
+
+> Mr Kellerman
+- 凯勒曼 先生
+
+> what is it about this case that the Secret Service is so intersted in?
+- 情报局为什么对这个案件如此感兴趣
+
+> The man killed the Vice-President's brother.
+- 那人傻了副总统的哥哥
+
+> What did you say? -You heard me.
+- 你说什么 -你听我说
+
+> Someone found Fibonacci.
+- 有人找到了菲波纳奇
+
+> I'm looking at the photos right now.
+- 我正看着这张照片呢
+
+> Son of a bitch has got a beard, sunglasses.
+- 狗娘养的留了胡子 还戴着太阳镜
+
+> Who was this someone?
+- 谁提供的信息
+
+> There's no return address on the envelope.
+- 信封上面没有回信地址
+
+> Just... this folded-up bird, made of paper
+- 只有一个折叠的鸟,用纸做的
+
+> Like origami?
+- 像折纸？
+
+> Yeah, like that, like origami.
+- 对 是的 就像折纸
+
+> You're Charles Westmoreland, right?
+- 你是 查尔斯·韦斯特莫兰德 对吗
+
+> Do I know you?
+- 咱们认识么
+
+> I knew your wife, before she passed.
+- 我在你老婆逝世前曾认识她
+
+> You knew Marla? -You mean Ann?
+- 你认识玛拉 -你说的是安
+
+> How'd you know her?
+- 你是怎么认识她的
+
+> We taught together in Boston.
+- 我们在波士顿有过谈话
+
+> East Farmington. -You mean West Wilmington?
+- 东法明敦吗 -你是说西威灵顿吗
+
+> No more tests
+- 别再考我了
+
+> I promise.
+- 我保证
+
+> Seems you know everything about me.
+- 你好像知道我的一切
+
+> Who are you? -Michael Scofield.
+- 你是谁 -迈克尔斯科菲尔德
+
+> How'd you get it in here?
+- 你是怎么把它带进来的
+
+> First off, she's not an it.
+- 首先 它不是它
+
+> She's Marilyn
+- 她是玛尔林
+
+> and she's grandfathered back from the days.
+- 自从监狱允许囚犯带宠物
+
+> when prisoners were allowed a creature comfort or two.
+- 她就被带进来了
+
+> I heard you were D.B. Cooper.
+- 我听说你是D.B.库珀
+
+> Every new fish comes in here
+- 一旦有新人来到这里
+
+> first thing they hear is that Charles Westmoreland is D.B. Cooper.
+- 总能听到 查尔斯·韦斯特莫兰德 是D.B. 库珀
+
+> I'll tell you like tell them.
+- 我会像告诉他们一样告诉你
+
+> You want the Cooper story?
+- 你想听库珀的故事么
+
+> I can't give it to you, cos I'm not him.
+- 我什么也告诉不了你 因为我不是他
+
+> It's too bad.
+- 真可惜
+
+> sort of wish it was true. The man's a legend.
+- 真希望是真的 一个传奇的人物
+
+> Nowwhere near as much as I wish it were true, friend.
+- 没有人比我还想了 朋友
+
+> I'd have a million five waiting for me on the outside.
+- 那样我就会在外面有一百五十万了
+
+> I'd put some grass under'em if I were you.
+- 如果我是你的话我会小心点
+ 
+> This thing'd go a whole lot easier if you'd just hire me.
+- 如果你雇佣我的话一切都变的简单
+
+> What is this all about?
+- 你到底想怎样
+
+> Say you were able to get outside those walls.
+- 如果有人能把你从这里高墙中弄出去
+
+> would you have the people in place to make you disappeared forever?
+- 你能不能找人帮他销声匿迹
+
+> What do you care? -I'm just curious.
+- 你问这个干嘛 -只是出于好奇
+
+> Where's Fibonaci?
+- 菲波纳奇在哪儿
+
+> That's not the way it works.
+- 这不是解决事情的方法
+
+> They come at me, John
+- 他们要是敢动我 约翰
+
+> I'm coming after you.
+- 我不会放过你的
+
+> I doubt it.
+- 我还真不信
+
+> All right.
+- 好吧
+
+> I totally misjudged you, Scofield.
+- 我完全把你看错了 斯科菲尔德
+
+> I didn't think you were the agitaiting type.
+- 我认为你不是一个惹事生非的人
+
+> Behaviour like that will not be tolerated in my prison.
+- 像那样的事情在我的监狱里是不允许的
+
+> 90 days in the SHU
+- 九十天的禁闭
+
+> That ought to be enough time to convince you of that fact.
+- 足够让你想清楚的了
+
+> 90 days? 
+- 九十天
+
+> That's right.
+- 没错
+
+> Something you wanna say?
+- 你还想说什么
+
+> It's just...
+- 只是
+
+> I'm not of much value to you in the SHU.
+- 要是在禁闭房里我就不能帮你了
+
+> Value?
+- 帮我
+
+> Hm-mm... the Taj.
+- 嗯 泰姬陵
+
+> It'd be a shame for the 8th wonder of the modern
+- 要是由于承重压力分布不均匀
+
+> world to collapse 'cause the stress's improperly propagated
+- 而使世界第八大奇迹倒塌那可就太可惜了
+
+> Improperly propagated?
+- 重力分布不均匀
+
+> Improperly propagated?
+- 承重压力分布不均匀
+
+> The joint are overloaded.
+- 结合处超过了承重极限
+
+> They won't provide anywhere near the sheer strenth
+- 从而不能再提供任何的承载力
+
+> the completed structure will need.
+- 以承受整个建筑物的荷载了
+
+> How much work are we talking?
+- 需要花费多长时间
+
+> You want it by when, June?
+- 你是想在6月完成吧
+
+> Yes.
+- 是的
+
+> Then we'd better egt started, wouldn't you say?
+- 那么现在就该开工了 你说呢
+
+> Who's there?
+- 谁啊
+
+> Bishop McMorrow was killed last night.
+- 马克莫拉主教昨晚被杀了
+
+> Someone shot him while he was sleeping.
+- 在他睡觉的时候 被人枪杀了
+
+> I thought you'd wanna know.
+- 我想你可能想知道
+
+> Thanks
+- 谢谢
+
+> Michael was right.
+- 迈克尔是对的
+
+> Sink! You got a visitor.
+- 水缸 有人来探监
+
+> He was arrested.
+- 他被捕了
+
+> For what?
+- 为什么
+
+> Possession of marijuana.
+- 携带大麻
+
+> I figured he could use some fatherly advice before it's...
+- 我认为你应该以父亲的身份给他建议 在你...
+
+> Gone forever?
+- 在被处决之前
+
+> I didn't mean that.
+- 我没那个意思
+
+> I know you didn't. Thanks, Lisa
+- 我知道 谢谢你 丽莎
+
+> Sit down.
+- 坐吧
+
+> Dope, huh?
+- 大麻是么
+
+> Using or dealing?
+- 吸食还是贩卖
+
+> What's the difference?
+- 有区别吗
+
+> Then what? you, uh.
+- 你想干什么
+
+> think it gives you some kind of street cred?
+- 想混出名气么
+
+> You got a piece of the good life. Take advantage.
+- 你有美好的前程 要好好珍惜
+
+> Look, I get it.
+- 好的 我明白了
+
+> The whole thing.
+- 你们那一套
+
+> She drags me in here
+- 她把我拉到这儿
+
+> you give me a big speech. I walk away a changed man.
+- 你给我讲大道理 走的时候会焕然一新
+
+> Straight "A"s
+- 科科都拿A
+
+> Harvard. grow up and be a dentist.
+- 哈佛 长大后成为一名牙医
+
+> It's better than being here.
+- 总比待在这里好
+
+> when you're doing the things you're doing.
+- 你做的那些事
+
+> You think it's me, it's you.
+- 别以为受惩罚的是我 那会是你自己
+
+> I did the same thing.
+- 我过去也曾这样过
+
+> Punished the old man cos he was gone.
+- 因为一个老人的离开而去责怪他
+
+> Look where it got me.
+- 而我又得到了什么呢
+
+> I'm not asking you to love me.
+- 我不是在求你爱我
+
+> I already screwed up that chance long ago
+- 很久以前我就失去了这个机会了
+
+> I'm asking you to love yourself.
+- 我希望你能自爱
+
+> You can still put the brakes on this thing.
+- 现在后悔还来得及
+
+> So that's what fatherly advice is like.
+- 那么这就是所谓的父亲的建议
+
+> Where are you going?
+- 你要去哪儿
+
+> I got homework.
+- 我有作业要写
+
+> They're putting m to death, LJ.
+- 他们想让我死 LJ
+
+> In a month's time. I'll be dead. You get that?
+- 再有一个月我就死了 你明白吗
+
+> you're already dead to me
+- 对我来说 你早就死了
+
+> Oh,no.
+- 不是吧
+
+> Yes.
+- 是的
+
+> What, you mean "yes, yes"?
+- 什么 你是说是 好的
+
+> Yes! Yes!
+- 是 是
+
+> Yeah!
+- 好的
+
+> Oh, there's just one thing.
+- 哦 还有一件事
+
+> Of course.
+- 没问题
+
+> My mom say we gotta wait till you get out.
+- 我妈妈说要等你出来
+
+> Of course, Miamor
+- 当然宝贝儿
+
+> She wants it to be in in a church.
+- 她想在教堂里举行婚礼 
+
+> Okay. Estabien
+- 浙西都不成问题
+
+> A Catholic church.
+- 天主教堂
+
+> Wouldn't want to mess with the Catholic roots, would we?
+- 我们不会破坏天主教的规矩的 对么
+
+> You went to Loyola.
+- 你在罗约尔学院读过书啊（芝加哥大学）
+
+> You've been checking up on me.
+- 你在背后调查我啊
+
+> I like to get to know my paients.
+- 我喜欢了解我的病人
+
+> I went to Northwestern Graduated two years after you did.
+- 我去过西北大学 比你晚两年毕业
+
+> Maybe we met before you, you know, drunk, out at a bar or somewhere.
+- 或许我们以前见过 喝醉了 或是在酒吧外面的某个地方
+
+> I would have remembered.
+- 我不记得了
+
+> That a compliment? -No.
+- 是在夸我吗 -不是
+
+> What?
+- 怎么了
+
+> Your blood glucose is 50mg per decilitre.
+- 你的血糖含量每 0.1公斤只有50毫克
+
+> So?
+- 怎么了
+
+> It's hypoglycaemic.
+- 说明你血糖低
+
+> You body's reacting to the insulin like you're not a diabetic.
+- 你的身体对胰岛素的反应不像是一个糖尿病患者的
+
+> You sure it's type 1 diabetes you've got?
+- 你肯定你患有一型糖尿病吗
+
+> Ever since I was a kid.
+- 从小就是
+
+> All right.
+- 好吧
+
+> You're not experiencing any tingling sensation, cold sweats or...
+- 有没有感到局部痉挛或者出冷汗
+
+> Infirmary.
+- 医务室
+
+> Yes. 
+- 是的
+
+> Yeah, he did.
+- 是的 他做了
+
+> No, I did and I do, I need them
+- 不我一定要做 我需要他们
+
+> OK, Great. Well. I'll call him after lunch, then.
+- 好的 太好了 午饭后我会打给他的
+
+> Thanks. I'm with a paient. Ok.
+- 多谢了 我这里还有病人好吧
+
+> I'd like to run some tests next time you're in.
+- 我想你再来的时候给你做些检查
+
+> I don't want to administer insulin to a man who doesn't need it.
+- 我不想给一个并不需要胰岛素的人注射胰岛素
+
+> Yeah. Sure.
+- 好的没问题
+
+> Ok.
+- 好的
+
+> How'd you get here, by the way?
+- 你是怎么进来的
+
+> Oh, you know.
+- 哦 你知道的
+
+> I don't. That's why I asked.
+- 我要知道就不问你了
+
+> You know... Hector. -What?
+- 你认识的 是海克特 -什么
+
+> I didn't have any money for the bus, so he offered me a ride.
+- 我没钱坐公车 只好搭他的车来了
+
+> He was really sweet.
+- 他人挺好的
+
+> Honey, he's just a friend.
+- 亲爱的 他只是一个朋友
+
+> No, he's not "just a friend"
+- 不 他不是只是朋友 
+
+> I know Hector. I know men.
+- 我了解海克特 我了解男人
+
+> Men and women can't be friends.
+- 男人和女人不可能成为朋友
+
+> A guy doesn't drive a girl 500 miles across state lines because he wants to be friends.
+- 一个男人带着一个女孩穿过州边五百里就因为他想交朋友
+
+> Casanova! Wrap it up.
+- 多情种子 抓紧时间
+
+> Hey. You got nothing to worry about, OK?
+- 嗨 不要再胡思乱想了 好吗
+
+> It's you I'm marrying.
+- 我要嫁的人是你
+
+> It's not you I'm worried about.
+- 我担心的不是你
+
+> Sixteen more months.
+- 再有十六个月
+
+> I love you.
+- 我爱你
+
+> Be easy, son, all right?
+- 别紧张 伙计好吗
+
+> Sucre tells me you're the local pharmacy.
+- 苏克雷告诉我你是这里的药店
+
+> What do you need, man?
+- 有想要什么 伙计
+
+> Fugnac.
+- 富格那克
+
+> I only speak English, white boy
+- 我只说英语 小白脸
+
+> It's an insulin blocker.
+- 是一种抵制胰岛素药效的药
+
+> Standard over the counter variety. You can get it any pharmacy.
+- 一种非处方药 任何药店都能买到
+
+> You can get that at Medical, then.
+- 那么你可以去药房拿
+
+> I can't get it at medical.
+- 我办不到
+
+> Why not?
+- 为什么
+
+> Because they're giving me insulin shots.
+- 因为他们已经给我注射了胰岛素
+
+> You're one mixed-up cracker. you know that?
+- 你还真能整 你知道吗
+
+> Can you get it for me or not?
+- 你到底能不能帮我
+
+> Only if you tell me why it's that you keep goin back up to Medical to get an insulin shot for which you don't need.
+- 除非你告诉我为什么那么想去医务室注射那本不需要的胰岛素
+
+> I like the ambience.
+- 我喜欢那里的环境
+
+> Uh- huh.
+- 哈哈
+
+> We in business?
+- 这么说答应了
+
+> Scofield! I don't know what you did but Abruzzi wanted me to give you this P.I. card.
+- 斯科菲尔德 我不知道你有什么本事 但是阿布鲁奇让我把这张监狱工厂的卡给你
+
+> Congratulations.
+- 恭喜你
+
+> You just joined the ranks of the employed.
+- 从无业游民成功升级为工薪阶层
+
+> Kudos, fish.
+- 算你狠 小嫩鸡
+
+> You got spine.
+- 你有种
+
+> All right, cons! Break it donw.
+- 好了 兄弟们 收工了
+
+> Move it, guys.
+- 该走了 伙计们
+
+> Saw Veronica came by yesterday.
+- 我昨天看到维罗妮卡来了
+
+> Still engaged to that guy?
+- 还和那个人订着婚吗
+
+> Yep.
+- 是的
+
+> could have been me.
+- 本应该是和我（订婚）的
+
+> If you hadn't self-destructed.
+- 如果你没有自毁的话
+
+> You think I mean to knock up Lisa Rix?
+- 你认为我该和丽莎·瑞克丝分手
+
+> I was just being stupid. Hurt
+- 我只是一时麻木 受了打击
+
+> Shouldn't have pushed her away, though.
+- 不管怎么说都不应该放弃她的
+
+> You pushed everyone away.
+- 你放弃了每一个人
+
+> I'm an anchor.
+- 我是一个累赘
+
+> All I'll do is drag'em down with me.
+- 我只会把她拖下水
+
+> Why did you hire him?
+- 你为什么要雇他
+
+> Keep your friends close, and your enemies closer.
+- 靠近你的朋友 更加靠近你的敌人
+
+> you mean what you said earlier?
+- 你先前说的 当真吗
+
+> I'm not here on vacation, Trust me.
+- 我不是来度假的 相信我
+
+> Getting outside these walls is just the beginning.
+- 逃出这里仅仅是个开始
+
+> You're gonna need money.
+- 还得需要钱
+
+> I'll have it.
+- 我会有的
+
+> And people on the outside.
+- 并且外面还有人
+
+> People that can help you disappear.
+- 还得有人帮你隐姓埋名
+
+> I've already got'em.
+- 我早就找好了
+
+> They just don't know it yet.
+- 只是他们还不知道而已
+
+> Look, whatever you've got going on, fill me in
+- 听着不管你要做什么 事先通知我
+
+> cos I'm in the dark here.
+- 我不想蒙在鼓里
+
+> Chaprral Associates got the contract to retrofit this place in '99
+- 谢帕德公司 在99年的时候拿到了改造这里的委托书 
+
+> $4 million. Head partner couldn't carck it
+- 四百万的合同 负责人无法胜任
+
+> so he subcontracted out an under-the-table sort of deal with a former associate.
+- 于是就把项目偷偷的移交给了别人来做
+
+> That guy was one of the partners in my firm.
+- 那个人恰恰是我们公司的雇员
+
+> We basically ghost-wrote the whole plan
+- 我们也就顺便偷偷修改了设计
+
+> crossed the "t's", dotted the "i's", grounted the tiles.
+- 偷工减料
+
+> You've seen the blueprints.
+- 你看过结构蓝图
+
+> Better than that.
+- 不只看过而已
+
+> I've got'em on me.
+- 就在我身上
+
+> Are you kidding me?
+- 开玩笑吗
+
+> Am I supposed to see something here?
+- 我可什么都没看出来啊
+
+> Look closer.
+- 看仔细点
