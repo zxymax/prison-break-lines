@@ -862,3 +862,298 @@
 > it'll all be over.
 - 一切斗湖结束
 
+> "The Son of Man must be delivered into the hands of sinful men and be crucified, and the third day rise again." 
+- 人子必须被交在罪人手里（选自圣经路加福音第24章）被钉在十字架上 第三日复活
+
+> And they remembered his words. And so should you.
+- 他们记住了他的话 你们也应该那样做
+
+> Good day, gentlemen. May God be with you.
+- 今天就到这里吧 愿上帝与你们同在
+
+> Michael?
+- 迈克尔
+
+> Why?
+- 这是怎么回事
+
+> I'm getting you out of here.
+- 我要把你弄出去
+
+> Burrows! Roll it up. Happy hour's over.
+- 布伦斯 快点 快乐时光结束了
+
+> It's imppossiblwe.
+- 根本不可能
+
+> Not if you designed the place it isn't.
+- 除非监狱是你自己设计的
+
+> Too formal.
+- 太正式了
+
+> Too greeting-card.
+- 太贺卡样了
+
+> We gotta make a decision sooner or later, you know.
+- 这事迟早要决定的
+
+> We have time.
+- 还有时间啊
+
+> We don't, actually.
+- 实际上 没有了
+
+> I mean, at some point, we gotta pull the trigger on this thing.
+- 有些时候 事情还是抓紧点的好
+
+> I don't wanna rush this.
+- 我不想这么草率
+
+> We're only gonna do it once. We have to get it right.
+- 人生只有一次 我不想出任何差错
+
+> Honey, can I ask you something?
+- 亲爱的 能问你个问题么
+
+> Of course.
+- 当然了
+
+> Are you putting this off?
+- 你是不是要把婚礼推迟
+
+> What do you mean?
+- 你说什么啊
+
+> I mean, are you having second thoughts?
+- 我是说你是不是改变注意了
+
+> No. Honey,no
+- 不 亲爱的 从来没有
+
+> I'm not
+- 我没有
+
+> I don't know
+- 我也不知道
+
+> I just can't help thinking this is about...
+- 只是我禁不住不去想它
+
+> It's not.
+- 不是这样的
+
+> I love you.
+- 我爱你
+
+> And I wanna be your wife.
+- 我要成为你的妻子
+
+> "Passion"? What were you thinking?
+- 爱恋 你是怎么想的
+
+> Hey, you went for it. 
+- 你自己也同意的
+
+> She probably thinks I went sissy up in here.
+- 她很可能认为我在这里变得娘娘腔了
+
+> "Passion". Got more than one syllable, too much talking.
+- 爱恋 多了一个字 话就变啰嗦了
+
+> That's me from now on.
+- 从现在开始
+
+> One-Syllable Sucre.
+- 以后只用单音节的词
+
+> "Yes","no","love","hate"..."love"
+- 是 否 爱 恨 爱
+
+> Give it time -Are you kidding?
+- 不要着急 -你开什么玩笑
+
+> I proposed to her.
+- 我在向她求婚
+
+> That doesn't take time.Si or no. One syllable, man.
+- 又不需要太多的时间 是还是不是 一个字而已
+
+> She's supposed to come around for a conjugal on Tuesday.
+- 她都是周二来探监的
+
+> She's always calling me beforehand, letting me know she's coming.
+- 来之前她总是先打个电话的
+
+> This time. man, I ain't heard a peep.
+- 可是这次 音信全无
+
+> You spooked her.
+- 是你把她吓跑了
+
+> Scofield. Get it together. Pope wants to see you.
+- 斯科菲尔德快起来 典狱长要见你
+
+> No good, fish.
+- 这可不妙 小嫩鸡
+
+> No one gets an audience with the Pope.
+- 从未有人见过典狱长
+
+> Not unless he's real intersted in what you got going on.
+- 除非他对你的所作所为感兴趣
+
+> Top of your class at Loyola.
+- 芝加哥大学的高材生
+
+> Magna cum laude, in fact.
+- 还成绩优秀
+
+> I can't help wondering what someone with your credentials is doing in a place like this.
+- 真不敢想象像你这么有资历的人竟然会来到这种地方
+
+> Took a wrong turn a few months back, I guess.
+- 我想可能是几个月前走错路了
+
+> You make it sound like a traffic infraction.
+- 听你说起来就像是交通违规一样
+
+> Like all you did was turn the wrong way up a one-day street.
+- 蹲监狱与单行道上逆行车是两码事
+
+> Everyone turns up one sooner or later.
+- 谁都有犯错误的时候
+
+> The reason I called you here, I noticed in your I-file, under "Occupation", you put down "unemployed".
+- 我教你来的原因是我看了你的档案在职业一栏里你写的 无业
+
+> That's not true, now, is it?
+- 那不是真的 对么
+
+> I know you're a structural engineer, Scofield.
+- 斯科菲尔德 我知道你是个结构学工程师
+
+> Shah Jahan built the Taj Mahal
+- 沙伽罕建造了泰姬陵
+
+> as a monument to his undying love for his wife.
+- 以此来表达他对妻子爱的永恒
+
+> My wife is quite fond of the story.
+- 我老婆很喜欢这个故事
+
+> It appeals to the romantic in her.
+- 她认为非常浪漫
+
+> Being married to someone in corrections, terrible job.
+- 嫁给了以恶搞像我这样工作的人是一件恐怖的事
+
+> Wouldn't wish it on anyone.
+- 谁会愿意呢
+
+> And yet, in 39 years, my wife has never complained.
+- 但在这三十九年我老婆从没有抱怨过
+
+> And the worst part of it is, I've never thanked her.
+- 更遗憾的是 我从未感谢过她
+
+> So, because I couldn't say it.
+- 因为我说不出口
+
+> I thought, you know. I could build it.
+- 我想做一个
+
+> Come June, it's our 40th anniversary.
+- 这个六月就是我们结婚40周年纪念日
+
+> But here, look...
+- 但是这里 你看
+
+> You see, the problem is, I build anymore, it's all gonna come down like a house of cards.
+- 你看 问题是 我造的越多 它就会像空舟楼阁一样塌下来
+
+> That's where I was hoping you could be of assistance.
+- 我想你能帮助我一下
+
+> for the favour, I can offer you three days of work a week in here and it'll keep you off the yard.
+- 作为回报 你每周可以在这里工作三天 也不必去什么操场了
+
+> I can't do it.
+- 我做不了
+
+> Son, it's better for me to owe you one in here that it is for you to owe me one,
+- 孩子 我敢肯定 在这里让我欠你人情要比你欠我的好
+
+> I'll take my chances.
+- 我会考虑的
+
+> Then we're through here.
+- 咱们没什么好谈的了
+
+> Guard!
+- 警卫
+
+> Two pounds of pot?
+- 两磅大麻
+
+> What were you trying to do, set a record?
+- 你想干什么 留下案底么
+
+> It's not funny, LJ. You could be going to jail.
+- 一点都不不好笑LJ 你很可能会进监狱的
+
+> It's pretty obvious to me you need some guidance.
+- 看来需要人来好好教育你
+
+> Hey.
+- 嗨
+
+> Thanks.
+- 谢谢
+
+> From who? Old Daddy Warbucks?
+- 找谁来合适呢 沃布客斯 老爸吗
+
+> Give him a chance. He's a good man.
+- 给他个机会 他是一个好人
+
+> We got nothing in common.
+- 我们没有共同语言
+
+> Where's this coming from, LJ?
+- 你到底怎么了 LJ
+
+> Last semester you were getting almost all As, and now...
+- 上学期你几乎全是A 可现在
+
+> It's your father, isn't it?
+- 是你父亲 对不
+
+> I don't have a father.
+- 我没有父亲
+
+> It wasn't an immaaculate conception, honey. Trust me.
+- 你这么做可不明智 相信我
+
+> Maybe it's time you went and saw him.
+- 也许你应该去看看他了
+
+> Mom
+- 妈妈
+
+> Mom.
+- 妈妈
+
+> Don't.
+- 不要 
+
+> I'm about as excited by the prospect as you are.
+- 我也想让你有个美好的未来
+
+> but something's gotta give
+- 但是有些东西是必需要放弃的
+
+> You have got too much potential to be screwing up your life like this.
+- 你再这样下去会毁了自己前程的
+
+
