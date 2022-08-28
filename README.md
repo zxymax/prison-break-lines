@@ -1070,7 +1070,7 @@
 - 但是这里 你看
 
 > You see, the problem is, I build anymore, it's all gonna come down like a house of cards.
-- 你看 问题是 我造的越多 它就会像空舟楼阁一样塌下来
+- 你看 问题是 我造的越多 它就会像空中楼阁一样塌下来
 
 > That's where I was hoping you could be of assistance.
 - 我想你能帮助我一下
@@ -1156,4 +1156,93 @@
 > You have got too much potential to be screwing up your life like this.
 - 你再这样下去会毁了自己前程的
 
+> What if they'd sent you to Taylorville or Marion and not here?
+- 如果他们把你送到 泰勒维尔 或是马里昂 怎么办
+
+> I think I'd be doing the same thing I'm doing in here.
+- 我想我也会这么做的
+
+> eating Jell-O, drinking Kool-Aid.
+- 吃吃果冻 喝喝饮料
+
+> I know what you're doing.
+- 我知道你要干什么
+
+> It's not luck of the draw that you're in here with Lincoln.
+- 你和林肯被关在一起绝非巧合
+
+> You forget I know you. Both of you
+- 你忘了我非常了解你们俩
+
+> You two have the most dysfunctional idea of love I've ever seen.
+- 你们兄弟之间的感情 恐怕是我见过的最特别的了
+
+> What, he beats you up to keep you off the street.
+- 他为了不让你在街头胡闹而打你
+
+> so you get yourself tossed into Fox River with him?
+- 现在你又主动和他关在一起
+
+> To what?
+- 为了什么
+
+> Save him?
+- 救他
+
+> I deserve to know. I loved him as much as you did.
+- 你应该告诉我 我曾像你一样爱他
+
+> Past tense for you, maybe. Not me.
+- 你的爱已成往事 而我的却不是
+
+> I gave him a shot when I got back from college. I did.
+- 我大学毕业后曾给过他机会
+
+> Even with all the stuff that was going on with him,
+- 即使在那种情况下
+
+> I did all I could to make it work, and he threw it away. 
+- 我还是尽我所能的帮助他 他却不把这些当回事
+
+> You never think maybe he was hurt that you left in the first place?
+- 你是否曾想过在你离开他的时候 他非常伤心
+
+> Don't do this.
+- 不要这么做
+
+> Whatever it is you're doing, don't do it.
+- 无论你想做什么 不要做
+
+> there's a better way. I'm already appealing your case.
+- 会有更好的办法的 我已经提出上诉了
+
+> I told you to leave alone
+- 我告诉你不要再管这件事了
+
+> I've goten in touch with the diocese about Linc. the bishop... 
+- 我已经和林肯所在地区的主教取得了联系上了
+
+> That won't stop it. It'll only delay it.
+- 没用的 只能延缓一下时间而已
+
+> You wanna do something?
+- 你真想帮什么
+
+> You find out who's trying to bury him. 
+- 找出是谁要至他于死地
+
+> Nobody's trying to bury him.
+- 没有人要至他于死地
+
+> The evidence was there.
+- 证据确凿
+
+> The evidence was cooked.
+- 证据是伪造的
+
+> Visiting hours are now over.
+- 探监时间结束了
+
+> Take care of yourself.
+- 照顾好自己
 
